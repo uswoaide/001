@@ -1,4 +1,4 @@
-# 果冻传媒天美传媒精东影业在线
+# 黄品汇安装包
 
 Discover the powerful features that My New Software offers.
 
